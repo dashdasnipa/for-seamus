@@ -1,0 +1,1 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Wingdings&pause=1000&color=F7F7F7&background=000000&width=435&lines=Seamus+you+are+haunted+for+that+one+time;long+ago+you+decided+to+kill+me+in+terraria;Now+you+are+haunted+and+deemed+to+get+covid;lol;good+luck+surviving;Plus;Just+have+fun+translating+this+%3A))](https://git.io/typing-svg)
